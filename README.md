@@ -1,0 +1,1 @@
+Hello.. THis is a game project trying to be like stardew valley
